@@ -1,0 +1,1 @@
+# Strahovanie_kupala
